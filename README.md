@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @Amat7709.Iam interested in  
+- 👋 Hi, I’m @Amat7709
 - 👀 I’m interested in teaching English.
 - 🌱 I’m currently learning account 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
+- 💞️ I’m looking to collaborate on tutoring students. 
 - 😄 Pronouns: she 
-  
